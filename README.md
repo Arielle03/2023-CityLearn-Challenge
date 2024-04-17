@@ -1,1 +1,1 @@
-ARE 377K CityLearn submission - Arielle Hernandez and Andrew Nguyen
+ARE 377K Project submission - Arielle Hernandez and Andrew Nguyen
